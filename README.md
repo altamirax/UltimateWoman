@@ -10,7 +10,6 @@ or if You like some difffffffffferent - "TodoLoTullo" ("Hasta la Beby Vista")
 <br>
 http://altamira.sytes.net/UltimateWoman/aa.asp
 <br>
-http://altamira.sytes.net/UltimateWoman/a3.gif
 <br>
 ok***
 
