@@ -6,11 +6,6 @@ Oper link:
 <br>
 http://altamira.sytes.net/UltimateWoman/login.aspx
 <br>
-or if You like some difffffffffferent - "TodoLoTullo" ("Hasta la Beby Vista")
-<br>
-http://altamira.sytes.net/UltimateWoman/aa.asp
-<br>
-<br>
 ok***
 
 
